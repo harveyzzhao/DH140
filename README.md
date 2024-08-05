@@ -1,3 +1,5 @@
+Drake has been on the news lately for shameful reasons. His career has taken a hit from his allegedly impure relationship with minors. This was hard to bear, since I am a big fan of Drake's smooth chorus and catchy lyrics. Although his future looks uncertain, Drake has had his ups and downs since he began rapping. I want to dive deep into over 200 of his songs **between 2007 and 2018**, analyze their **emotion, recurring theme and linguistic complexity** to roughly sort his career into eras. My research question is *How have the emotion, recurring themes, and linguistic complexity in Drake's lyrics evolved between 2007 and 2018, and can these changes be used to delineate distinct eras in his musical career?* 
+
 # Final Project Ideas
 
 This document outlines potential ideas for the final project. I decide to go with Idea 1 after discussing with Professor Winjum.
